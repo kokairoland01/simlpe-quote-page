@@ -1,0 +1,1 @@
+# simlpe-quote-page
